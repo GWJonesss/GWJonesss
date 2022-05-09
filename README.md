@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GWJonesss
 - 👀 I’m interested in Game Development
 - 🌱 I’m currently learning at The Tech Academy 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on exciting video games!
 - 📫 How to reach me  @LinkedIn
 - https://www.linkedin.com/in/gabriel-jones-07554bb2/
 
